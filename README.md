@@ -1,2 +1,2 @@
-# Invisible_Clock
- Harry Potter Movie Invible Trick (Invisible Clock)
+# Invisible_Cloak
+ Harry Potter Movie Invible Trick (Invisible man)
